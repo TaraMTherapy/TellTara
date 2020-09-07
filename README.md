@@ -4,7 +4,7 @@ Licensed Marriage and Family Therapist
 
 ## The first step to a better you
 
-Hello and Welcome! I am a Licensed Marriage and Family Therapist. I recognize that beginning therapy, especially for the first time, can feel uncomfortable or scary, but it doesn’t have to be. Upon our first interaction, my goal is to make you feel comfortable and provide you with as much information and knowledge about the process as you need. It is important for me that you find a therapist that seems like a good fit for you and that you and I can create a space that will be insightful and beneficial for you. 
+Hello and Welcome! I recognize that beginning therapy, especially for the first time, can feel uncomfortable or scary, but it doesn’t have to be. Upon our first interaction, my goal is to make you feel comfortable and provide you with as much information and knowledge about the process as you need. It is important for me that you find a therapist that seems like a good fit for you and that you and I can create a space that will be insightful and beneficial for you. 
 
 Throughout my professional career, I have been fortunate enough to work with individuals, couples, and groups from all different backgrounds, with various diagnoses or concerns, in very different capactities. My journey began at the Campus Assault Resource and Education Center at the University of California, Irvine and soon expanded into the world of matchmaking, dating coaching, and dating apps. More traditionally, my therapeutic training began in West Los Angeles Community College, where i completed my first traineeship, and continued for a few years in a Private Practice setting and an Inpatient Residential Treatment Center for teens.  
 
