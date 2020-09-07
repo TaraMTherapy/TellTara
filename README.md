@@ -25,3 +25,9 @@ Specialized Services highlight a few of many different issues and populations I 
 1. __Relationships__ Romantic relationships, familial relationships, friendships, and everything in between are a crucial part of our daily lives as humans. Without healthy relationships, we may find that our needs are not met, we do not have the support we feel we need, and we may feel unhappy. In therapy we can explore these relationships and discover a better and more fulfilling balance amongst these relationships for ourselves.
  2.  __Anxiety__ Anxiety comes in all shapes and forms. When we struggle with anxiety, we may find ourselves  in fight or flight mode, 10 steps ahead in thought, and worrying more than those around us. Physically, we may feel queasy, dizzy, sweaty, like our heart is racing, and may fully avoid the things that are make us anxious. I am here to help you understand your anxiety better and work with, rather than against, your anxiety for better results.
  3. __College Students__ As a college student, you experience issues very specific to your population. Not only are you experiencing many transitions, but you are constantly under stress and pressure to perform and excel. It can be difficult to balance education, life transitions such as being away from home for the first time, and a social life. You may encounter struggles with your identity, with your emotions, and with the goals you have not yet accomplished. I am here to work beside you to process and work through all these changes.
+
+
+Contact info:
+[Instagram](https://www.instagram.com/taramtherapy/)
+[TaraMTherapy@gmail.com](mailto:TaraMTherapy@gmail.com?subject=TellTara Info Request&body=Hi, I found the TellTara website and am interested in seeking:)
+`(213) 516-2326`
