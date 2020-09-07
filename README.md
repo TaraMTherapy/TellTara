@@ -29,5 +29,5 @@ Specialized Services highlight a few of many different issues and populations I 
 
 Contact info:
 [Instagram](https://www.instagram.com/taramtherapy/)
-[TaraMTherapy@gmail.com](mailto:TaraMTherapy@gmail.com?subject=TellTara Info Request&body=Hi, I found the TellTara website and am interested in seeking:)
+[TaraMTherapy@gmail.com]("mailto:TaraMTherapy@gmail.com?subject=TellTara Info Request&body=Hi, I found the TellTara website and am interested in seeking:")
 `(213) 516-2326`
