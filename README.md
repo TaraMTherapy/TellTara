@@ -28,7 +28,7 @@ Specialized Services highlight a few of many different issues and populations I 
  
 
 # About Tara (seperate page if possible)
-Tara is a Licensed Marriage and Family Therapist working with individuals and couples virtually throughout California during the Covid19 pandemic. During her undergraduate career, Tara developed a strong curiousity and interest in romantic relationships, which led to various projects, an internship at the Campus Assault Resource and Education Center, and soon expanded into the world of matchmaking, dating coaching, and dating apps. Tara then attended the University of Southern California for her masters degree and completed her traineeship at the West Los Angeles Community College. After graduation, Tara began working in Private Practice and a Inpatient Residential Treatment Center for Teens.  
+Tara is a Licensed Marriage and Family Therapist working with individuals and couples virtually throughout California during the Covid19 pandemic. During her undergraduate career, Tara developed a strong curiousity and interest in romantic relationships, which led to various projects, an internship at the Campus Assault Resource and Education Center, and soon expanded into the world of matchmaking, dating coaching, and dating apps. Tara then attended the University of Southern California for her masters degree and completed her traineeship at the West Los Angeles Community College. After graduation, Tara began working in Private Practice and a Inpatient Residential Treatment Center for Teens as an associate. Following Licensure, Tara opened up her own Private Practice.
 
 
 Contact info:
